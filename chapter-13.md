@@ -1,4 +1,3 @@
-
 ### Chapter XIII
 
 # Of the Natural Condition of Mankind as Concerning Their Felicity and Misery
